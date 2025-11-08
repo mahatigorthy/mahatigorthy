@@ -1,4 +1,4 @@
-What's up! I'm Mahati
+What's up! I'm Mahati :)
 
 - 🔭 I love to code for people and with people
 - 👯 I’m always looking to collaborate on anything mathy, technology-y, roboticsy, or just anything fun
