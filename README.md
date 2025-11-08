@@ -5,4 +5,4 @@ What's up! I'm Mahati
 - 🤔 I’m curious about how code shapes the real world
 - ⚡ Fun fact! I like to represent myself with -isms, here are a few of my current one's: onion-ism, cello-ism, connect4-ism, vlogging-ism
 
-You can always reach me at mgorthy@umd.edu or reach out to me on www.linkedin.com/in/mgorthy!
+You can always reach me at mgorthy@umd.edu or www.linkedin.com/in/mgorthy!
