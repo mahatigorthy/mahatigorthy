@@ -1,5 +1,3 @@
-## Hi there 👋
-
 What's up! I'm Mahati
 
 - 🔭 I love to code for people and with people
